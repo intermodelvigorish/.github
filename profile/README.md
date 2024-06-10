@@ -1,4 +1,4 @@
-## Hi there 👋 Welcome to everything to do with the InterModel Vigorish (IMV)!
+Welcome to everything to do with the InterModel Vigorish (IMV)👋👋👋!
 
 A link to a few papers:
 
